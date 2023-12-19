@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Peter Mott @petermott and I live in Wakefield in West Yorkshire which is know for Torkshire puddings
+- 👋 Hi, I’m Peter Mott @petermott and I live in Wakefield in West Yorkshire which is known for Yorkshire puddingsand rhubarb
 - 👀 I like doing charts and research on economics
 - 📫 peter@monicol.co.uk
 
